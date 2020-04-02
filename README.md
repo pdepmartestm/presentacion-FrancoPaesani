@@ -16,9 +16,9 @@ En cuanto a las series tengo dos favoritas:
 - Sherlock Holmes.
 
 Además de todo eso, me gusta mucho viajar y conocer nuevos lugares. 
-
-Les dejo mi instagram: [FranPaesani](https://www.instagram.com/fraanpaesani)
-
 Gracias por ver mi presentación y nos veremos en las clases virtuales.
 Saludos!!
 
+Les dejo mi instagram y una foto: 
+
+[![Insta](frannnn.jpeg)](https://www.instagram.com/fraanpaesani)
